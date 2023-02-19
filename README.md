@@ -1,1 +1,2 @@
-Self-taught software developer ⚒️
+
+Self-taught software developer ⚒️ 
